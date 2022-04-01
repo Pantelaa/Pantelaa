@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me @pantela1111
+- 📫 How to reach me: tg @pantela1111
 
 <!---
 Pantelaa/Pantelaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
